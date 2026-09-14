@@ -1,1 +1,1 @@
-# ETEC-Bauru-Pam-I-Jogo-da-Mem-ria
+# ETEC-Bauru-Pam-I-Jogo-da-Memoria
